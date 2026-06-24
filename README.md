@@ -18,4 +18,4 @@ Te invito a revisar mis repositorios fijados, donde aplico todo este conocimient
 
 ---
 📫 **¿Conectamos?**
-Encuéntrame en [LinkedIn](www.linkedin.com/in/gregorio-basanta-377bb3350) o contáctame a gregoriobasanta@gmail.com
+Encuéntrame en [LinkedIn](https://www.linkedin.com/in/gregorio-basanta-377bb3350) o contáctame a gregoriobasanta@gmail.com
